@@ -1,0 +1,2 @@
+- 🙋 Hi, I’m Olya
+- 📚 I’m currently learning on data analytics at ITMO University
